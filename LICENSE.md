@@ -1,4 +1,4 @@
-
+Experience hooked like never before with hooked Script vip, the #1 Script. Includes no cooldown and instant win for unbeatable performance.
 
 
 
